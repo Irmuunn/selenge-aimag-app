@@ -1,0 +1,1 @@
+# selenge-aimag-app
